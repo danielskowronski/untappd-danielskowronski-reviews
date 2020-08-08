@@ -1,0 +1,3 @@
+# Fortuna Komes Porter Bałtycki Płatki Dębowe
+https://untappd.com/user/danielskowronski/checkin/927714816
+Zapach dębu i alkoholu (ale porterowego), ogólnie drewniany-beczkowy. Barwa czarna, piana ciemno złota, chociaż trochę za szybko opadła. Odpowiednio wygazowane, gładkie odczucie w ustach, posmak troszeczkę owsiany, czekoladowe nuty. Goryczka nie zalega, ale przyjemnie zostaje. Płatki dębowe dodają złożoności doznań, ale jednocześnie czynią porter trochę delikatniejszym.
